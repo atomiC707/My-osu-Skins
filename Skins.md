@@ -12,3 +12,9 @@ Estas son mis skins por ahora despues agregare mas.
 
 # [Koaligma(Koa) 1.1](https://mega.nz/folder/pKwCyCDT#4hFHiCPBYIzw0RSgfD4pWQ/folder/YGRxlC5J)
 ![](https://camo.githubusercontent.com/fc9e2aabfcaccbfcdb8f3bf36e9e26f4c898356d35c4adc04b7ecc5eaf4731d9/68747470733a2f2f692e696d6775722e636f6d2f456142375259472e706e67)
+
+# [Mrekk 2.0 FY](https://www.mediafire.com/file/rdwpbmrojuds0m0/-_%2523_Mrekk_%25282.0%2529_%25C2%25ABFY%25C2%25BB_%2523-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2021-02/1613753120_screenshot9229.jpg)
+
+# [Rafis HDDT](https://drive.google.com/file/d/1aJh7apqZTrXvWkwNVhzBfIVcG821hxx2/view)
+![](https://drive.google.com/file/d/1aJh7apqZTrXvWkwNVhzBfIVcG821hxx2/view)
