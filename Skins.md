@@ -10,6 +10,9 @@ Estas son mis skins por ahora despues agregare mas.
 # [Yugen](https://www.mediafire.com/file/gkxr6fswqjozc7f/-_YUGEN_FINAL_WS_-.osk/file)
 ![](https://osuskins.net/screenshots/wEaMJGb.jpg)
 
+# [Gawr Gura](https://www.mediafire.com/file/uusklkpvdtnf6wh/-Gawr_Gura-.osk/file)
+![](https://i.imgur.com/WB3Tgtj.png)
+
 # [Komori MC Noel (IV)](https://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1563806607_screenshot6079.jpg)
 
