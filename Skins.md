@@ -4,8 +4,8 @@ Estas son mis skins por ahora despues agregare mas.
 
 05/07/2021
 
-# [FlyingTuna Selyu 1.1](https://www.mediafire.com/file/10yv0iwzd9vn7zh/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
-![](https://skins.osuck.net/uploads/posts/2020-08/1596468449_screenshot9247.jpg)
+# [Komori Pengu_Lian](https://www.mediafire.com/file/pr8n1s15j37whi8/Komori_-_Pengu_Lian%2528PwV%2529.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-08/1565775665_screenshot6289.jpg)
 
 # [Komori MC Noel (IV)](https://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1563806607_screenshot6079.jpg)
