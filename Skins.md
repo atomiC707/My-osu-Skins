@@ -7,9 +7,6 @@ Estas son mis skins por ahora despues agregare mas.
 # [Komori Pengu_Lian](https://www.mediafire.com/file/pr8n1s15j37whi8/Komori_-_Pengu_Lian%2528PwV%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-08/1565775665_screenshot6289.jpg)
 
-# [Yugen](https://www.mediafire.com/file/gkxr6fswqjozc7f/-_YUGEN_FINAL_WS_-.osk/file)
-![](https://osuskins.net/screenshots/wEaMJGb.jpg)
-
 # [Gawr Gura](https://www.mediafire.com/file/uusklkpvdtnf6wh/-Gawr_Gura-.osk/file)
 ![](https://i.imgur.com/WB3Tgtj.png)
 
