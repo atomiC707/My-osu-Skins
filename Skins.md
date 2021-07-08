@@ -2,7 +2,7 @@
 
 Estas son mis skins por ahora despues agregare mas. 
 
-05/07/2021
+08/07/2021
 
 # [Komori Pengu_Lian](https://www.mediafire.com/file/pr8n1s15j37whi8/Komori_-_Pengu_Lian%2528PwV%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-08/1565775665_screenshot6289.jpg)
