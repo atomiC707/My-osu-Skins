@@ -7,6 +7,9 @@ Estas son mis skins por ahora despues agregare mas.
 # [Komori Pengu_Lian](https://www.mediafire.com/file/pr8n1s15j37whi8/Komori_-_Pengu_Lian%2528PwV%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-08/1565775665_screenshot6289.jpg)
 
+# [Yugen](https://www.mediafire.com/file/gkxr6fswqjozc7f/-_YUGEN_FINAL_WS_-.osk/file)
+![](https://osuskins.net/screenshots/wEaMJGb.jpg)
+
 # [Komori MC Noel (IV)](https://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1563806607_screenshot6079.jpg)
 
